@@ -1,4 +1,6 @@
 # Cumy Cursors!
+Support Me On Kofi1
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/O4O515DIW5)
 Normal One !
 ![raw1](https://github.com/user-attachments/assets/8768d5e2-95d5-4704-a9ec-c092cbbd4b89)
 # Dark Ones Look Sick Tbh
